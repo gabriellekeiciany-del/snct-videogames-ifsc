@@ -1,1 +1,0 @@
-# snct-videogames-ifsc
